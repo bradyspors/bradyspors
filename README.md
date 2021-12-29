@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bradyspors
+- 👀 I’m interested and passionate about video games and the game creation process. Specifically, I'm interested in how players perceive video games and and what makes their passion in games strong.
+- 🌱 I’m currently learning how to take what I learn about players' interests and integrate them into a well crafted expereience.
+- 💞️ I’m looking to collaborate on any projects with the goal of immersing players into a world that they want to be in and learn more about.
+- 📫 How to reach me:
+  - bradyspors@gmail.com
