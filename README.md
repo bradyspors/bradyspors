@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on any projects with the goal of immersing players into a world that they want to be in and learn more about.
 - 📫 How to reach me:
   - bradyspors@gmail.com
+  - linkedin.com/in/brady-spors
